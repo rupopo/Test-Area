@@ -1,1 +1,1 @@
-•¶Žš‚ð•Ï‚¦‚é‚ºI
+windows daze
